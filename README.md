@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Saurabh Kumar
 - 👀 I’m Software Engineer(Automation Engineer) and expertise in Backend Systems
-- 💞️ I’m looking to collaborate on open source project
+- 💞️ Lets connect!!!
 - 📫 Email me @ saurabhkic2018@gmail.com or DM on Twitter @Saurabh76587944
 
 <!---

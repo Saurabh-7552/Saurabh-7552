@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Saurabh Kumar
-- 👀 I’m Software Engineer(Automation Engineer) and expertise in Backend Systems
+- 👀 I’m Engineer(Backend Systems, Ex Automation)
 - 💞️ Lets connect!!!
 - 📫 Email me @ saurabhkic2018@gmail.com or DM on Twitter @Saurabh76587944
 
